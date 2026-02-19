@@ -17,7 +17,7 @@ I'm a **20-year-old student** who loves building things—whether it's through c
 
 ---
 
-### 📫 Connect with me
+### 📫 Contact me
 * **Instagram:** [@kostasc1](https://instagram.com/kostasc1)
 * **Discord:** `@kostasc1`
 * **Email:** [melikozdemir1334@gmail.com](mailto:melikozdemir1334@gmail.com)
